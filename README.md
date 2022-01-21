@@ -12,7 +12,7 @@ Read through these 11 books like you'd read any series of books, becoming famili
 
 # The #Read-to-See Short-list:
 
-*Laying the foundation –* Jesus, His life was His message and His message and life now lives in His believers.
+***Laying the foundation –*** Jesus, His life was His message and His message and life now lives in His believers.
 1. **Luke** – *Seeing* Jesus.
 1. **Acts** – *Seeing* the Good News of Jesus go viral.
 1. **Colossians** – *Seeing* the majesty of Jesus transform daily living.
