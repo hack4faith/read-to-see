@@ -17,24 +17,24 @@ Read through these 11 books like you'd read any series of books, becoming famili
 1. **Acts** – *Seeing* the Good News of Jesus go viral.
 1. **Colossians** – *Seeing* the majesty of Jesus transform daily living.
 
-*Tying the Old Testament with the New –* Jesus and the plan of redemption are at the heart of both.
-1. Genesis - *Seeing* the source of all things from the physical to the spiritual. And seeing God's loving promise provide the master plan for redemption and make a way for a faith-life.
-1. Exodus - *Seeing* slaves become a nation through which God provides the historic and prophetic context to bring Jesus into the world.
-1. Hebrews - *Seeing* the Old Testament in light of the majesty of Jesus - Jesus was/is the agent of God's Master Plan.
+***Tying the Old Testament with the New –*** Jesus and the plan of redemption are at the heart of both.
+1. **Genesis** - *Seeing* the source of all things from the physical to the spiritual. And seeing God's loving promise provide the master plan for redemption and make a way for a faith-life.
+1. **Exodus** - *Seeing* slaves become a nation through which God provides the historic and prophetic context to bring Jesus into the world.
+1. **Hebrews** - *Seeing* the Old Testament in light of the majesty of Jesus - Jesus was/is the agent of God's Master Plan.
 
-*Receiving encouragement* from those who walked with and knew Jesus before and after His death and resurrection and went on to live a faith-filled life for Him.  Here we see what was important enough for each of these to be writing about at the end of their life -- this encourages our faith-life and shapes how we see ourself influencing the present.
-1. 1 John - *Seeing* yourself immersed in the love of God. 
-1. 1 Peter - *Seeing* yourself content with your integrity firmly rooted in Christ.
-1. 2 Peter - *Seeing* yourself mature, fully complete in God, able to endure all things.
-1. James - *Seeing* yourself genuine in faith, words, actions and prayer.
+***Receiving encouragement*** from those who walked with and knew Jesus before and after His death and resurrection and went on to live a faith-filled life for Him.  Here we see what was important enough for each of these to be writing about at the end of their life -- this encourages our faith-life and shapes how we see ourself influencing the present.
+1. **1 John** - *Seeing* yourself immersed in the love of God. 
+1. **1 Peter** - *Seeing* yourself content with your integrity firmly rooted in Christ.
+1. **2 Peter** - *Seeing* yourself mature, fully complete in God, able to endure all things.
+1. **James** - *Seeing* yourself genuine in faith, words, actions and prayer.
 
-*Revealing the majesty of Jesus* in the reconciliation of all things in heaven and on earth.
-1. Revelation - *Seeing* the result of God's Master Plan - His plan is to have you with Him.
+***Revealing the majesty of Jesus*** in the reconciliation of all things in heaven and on earth.
+1. **Revelation** - *Seeing* the result of God's Master Plan - His plan is to have you with Him.
 
 
 Our prayer is that the **#Read-to-See** short-list provides the lens of God's Master Plan, mankind reconciled through Jesus, through which to see each book of the Bible you will go on to read and study. 
 	
-As the Apostle Paul says, *"…There’s nothing like the written Word of God for showing you the way to salvation through faith in Christ Jesus. Every part of Scripture is God-breathed and useful one way or another—showing us truth, exposing our rebellion, correcting our mistakes, training us to live God’s way. Through the Word we are put together and shaped up for the tasks God has for us." 2 Timothy 3:14-17, The Message*
+The Apostle Paul said, *"…There’s nothing like the written Word of God for showing you the way to salvation through faith in Christ Jesus. Every part of Scripture is God-breathed and useful one way or another—showing us truth, exposing our rebellion, correcting our mistakes, training us to live God’s way. Through the Word we are put together and shaped up for the tasks God has for us." 2 Timothy 3:14-17, The Message*
 
 
 
