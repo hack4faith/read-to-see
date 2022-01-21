@@ -1,6 +1,3 @@
-# read-to-see
-This repository is for Bible readings.
-
 # #Hack4Faith Presents:
 
 ## #Read-to-See - A Reading Path for Discovering God's Master Plan
