@@ -8,14 +8,14 @@ Have you ever wanted to get to the core understanding on something and you step 
 
 This **#Read-to-See** plan provides a 'short-list' reading path (11 books not all 66) through which you can discover God's Master Plan for all time, how Jesus is at the heart of it, and how God has provided the way for you to be included in it too! 
 
-Read through these 11 books like you'd read any series of books, becoming familiar with the various characters and letting the unfolding story engage you. It's not a time for deep study, simply #Read-to-See God's great and unfolding master plan for all things and how He sees you.
+Read through these 11 books like you'd read any series of books, becoming familiar with the various characters and letting the unfolding story engage you. It's not a time for deep study, simply **#Read-to-See** God's great and unfolding master plan for all things and how He sees you.
 
 # The #Read-to-See Short-list:
 
 *Laying the foundation –* Jesus, His life was His message and His message and life now lives in His believers.
-1. Luke – *Seeing* Jesus.
-1. Acts – *Seeing* the Good News of Jesus go viral.
-1. Colossians – *Seeing* the majesty of Jesus transform daily living.
+1. **Luke** – *Seeing* Jesus.
+1. **Acts** – *Seeing* the Good News of Jesus go viral.
+1. **Colossians** – *Seeing* the majesty of Jesus transform daily living.
 
 *Tying the Old Testament with the New –* Jesus and the plan of redemption are at the heart of both.
 1. Genesis - *Seeing* the source of all things from the physical to the spiritual. And seeing God's loving promise provide the master plan for redemption and make a way for a faith-life.
