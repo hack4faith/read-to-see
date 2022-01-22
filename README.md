@@ -19,7 +19,7 @@ Read through these 11 books like you'd read any series of books, becoming famili
 
 ***Tying the Old Testament with the New –*** Jesus and the plan of redemption are at the heart of both.
 1. **Genesis** - *Seeing* the source of all things from the physical to the spiritual. And seeing God's loving promise provide the master plan for redemption and make a way for a faith-life.
-1. **Exodus** - *Seeing* slaves become a nation through which God provides the historic and prophetic context to bring Jesus into the world.
+1. **Exodus** - *Seeing* slaves become a nation through which God provides the historic, ancestry and prophetic context to bring Jesus into the world.
 1. **Hebrews** - *Seeing* the Old Testament in light of the majesty of Jesus - Jesus was/is the agent of God's Master Plan.
 
 ***Receiving encouragement*** from those who walked with and knew Jesus before and after His death and resurrection and went on to live a faith-filled life for Him.  Here we see what was important enough for each of these to be writing about at the end of their life -- this encourages our faith-life and shapes how we see ourself influencing the present.
