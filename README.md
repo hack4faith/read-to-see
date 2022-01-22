@@ -2,7 +2,7 @@
 
 ## #Read-to-See - A Reading Path for Discovering God's Master Plan
 
-*Read the Bible? Where do I even start? What if you had a suggested reading 'short-list' to help get started?*
+*Read the Bible? Where do I even start? What if you had a suggested reading 'short-list' to help?*
 
 Have you ever wanted to get to the core understanding on something and you step into a library or book store or even do an internet search and are overwhelmed with the question, where do I even start? Many times in our approach to wanting to understand more about God, we are overwhelmed even if we have a Bible in hand. The Bible too is like a library, consisting of 66 books with a variety of authors and two sections -- an old part (39 books) and a new part (27 books) -- where does one start? To get started, sometimes we simply need someone that has been down the path before to come alongside. Someone to share a suggested reading 'short-list' that points us in a direction where we can see the core concepts and lay a foundation for future deeper study and understanding. 
 
