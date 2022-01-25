@@ -4,7 +4,7 @@
 
 *Read the Bible? Where do I even start? What if you had a suggested reading 'short-list' to help?*
 
-Have you ever wanted to get to the core understanding on something and you step into a library or book store or even do an internet search and are overwhelmed with the question, where do I even start? Many times in our approach to wanting to understand more about God, we are overwhelmed even if we have a Bible in hand. The Bible too is like a library, consisting of 66 books with a variety of authors and two sections -- an old part (39 books) and a new part (27 books) -- where does one start? To get started, sometimes we simply need someone that has been down the path before to come alongside. Someone to share a suggested reading 'short-list' that points us in a direction where we can see the core concepts and lay a foundation for future deeper study and understanding. 
+Have you ever wanted to get to the core understanding on something and you step into a library or bookstore or even do an internet search and are overwhelmed with the question, where do I even start? Many times in our approach to wanting to understand more about God, we are overwhelmed even if we have a Bible in hand. The Bible too is like a library, consisting of 66 books with a variety of authors and two sections -- an old part (39 books) and a new part (27 books) -- where does one start? To get started, sometimes we simply need someone that has been down the path before to come alongside. Someone to share a suggested reading 'short-list' that points us in a direction where we can see the core concepts and lay a foundation for future deeper study and understanding. 
 
 This **#Read-to-See** plan provides a 'short-list' reading path (11 books not all 66) through which you can discover God's Master Plan for all time, how Jesus is at the heart of it, and how God has provided the way for you to be included in it too! 
 
@@ -22,7 +22,7 @@ Read through these 11 books like you'd read any series of books, becoming famili
 1. **Exodus** - *Seeing* slaves become a nation through which God provides the historic, religious and prophetic context to bring Jesus into the world.
 1. **Hebrews** - *Seeing* the Old Testament in light of the majesty of Jesus - Jesus was/is the agent of God's Master Plan.
 
-***Receiving encouragement*** from those who walked with and knew Jesus before and after His death and resurrection and went on to live a faith-filled life for Him.  Here we see what was important enough for each of these to be writing about at the end of their life -- this encourages our faith-life and shapes how we see ourself influencing the present.
+***Receiving encouragement*** from those who walked with and knew Jesus before and after His death and resurrection and went on to live a faith-filled life for Him.  Here we see what was important enough for each of these to be writing about at the end of their life -- this encourages our faith-life and shapes how we see ourselves influencing the present.
 1. **1 John** - *Seeing* yourself immersed in the love of God. 
 1. **1 Peter** - *Seeing* yourself content with your integrity firmly rooted in Christ.
 1. **2 Peter** - *Seeing* yourself mature, fully complete in God, able to endure all things.
