@@ -40,7 +40,7 @@ The Apostle Paul said, *"…There’s nothing like the written Word of God for s
 
 Visit [Hack4Faith.org](https://www.hack4faith.org/) for 'Contact Us' information.
 
-Twitter: @Hack4Faith, #Hack4Faith, #YourFaith2Action, #Read-to-Feed
+Twitter: @Hack4Faith, #Hack4Faith, #YourFaith2Action, #Read2See
 
 Copyright Hack4Faith and Donovan Follette. This material is subject to [Creative Commons License (CC BY-NC-SA 4.0)](https://creativecommons.org/licenses/by-nc-sa/4.0/).
 
