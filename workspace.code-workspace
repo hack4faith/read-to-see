@@ -1,0 +1,16 @@
+{
+	"folders": [
+		{
+			"name": "colossians",
+			"path": "..\\colossians"
+		},
+		{
+			"name": "read-to-see",
+			"path": "."
+		},
+		{
+			"path": "../james"
+		}
+	],
+	"settings": {}
+}
