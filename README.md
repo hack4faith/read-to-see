@@ -5,7 +5,7 @@
 *Read the Bible? Where do I even start? What if you had a suggested reading 'short-list' to help?*
 
 Have you ever wanted to get to the core understanding on something and you step into a library or bookstore or even do an internet search and are overwhelmed with the question, where do I even start? Many times in our approach to wanting to understand more about God, we are overwhelmed even if we have a Bible in hand. The Bible too is like a library, consisting of 66 books with a variety of authors and two sections -- an old part (39 books) and a new part (27 books) -- where does one start? To get started, sometimes we simply need someone that has been down the path before to come alongside. Someone to share a suggested reading 'short-list' that points us in a direction where we can see the core concepts and lay a foundation for future deeper study and understanding. 
- 
+
 This **#Read2See** plan provides a 'short-list' reading path (12 books not all 66) through which you can discover God's Master Plan for all time, how Jesus is at the heart of it, and how God has provided the way for you to be included in it too! 
 
 Read through these 12 books like you'd read any series of books, becoming familiar with the various characters and letting the unfolding story engage you. It's not a time for deep study, simply **#Read2See** God's great and unfolding master plan for all things and how He sees you.
@@ -27,7 +27,7 @@ Read through these 12 books like you'd read any series of books, becoming famili
 1. **1 Peter** - *Seeing* yourself content with your integrity firmly rooted in Christ.
 1. **2 Peter** - *Seeing* yourself mature, fully complete in God, able to endure all things.
 1. **James** - *Seeing* yourself genuine in faith, words, actions and prayer.
-2. **John** - *Seeing* Jesus again: The Son of God, Creator, Redeemer, God's gift of love to the world.
+2. **John** - *Seeing* Jesus, again: Son of God, Creator, Redeemer, God's gift of love to you.
 
 ***Revealing the majesty of Jesus*** in the reconciliation of all things in heaven and on earth.
 1. **Revelation** - *Seeing* the result of God's Master Plan - His plan is to have you with Him.
